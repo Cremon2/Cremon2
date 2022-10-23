@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Cremon2
+- 👋 Hi, I’m @Cremon
 - 👀 I’m interested in video games and anime
 - 🌱 I’m currently learning something
 - 📫 How to reach me 
