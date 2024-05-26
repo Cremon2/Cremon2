@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Cremon
-- 👀 I’m interested in video games and anime
-- 🌱 I’m currently learning something
-- Studying BSIT 
+- 👀 I’m interested in video games, anime, manwa, and mangga
+- 🌱 I'm dumb
+- Studying BSIT first year
 
 <!---
 Cremon2/Cremon2 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
