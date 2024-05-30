@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @Cremon
 - 👀 I’m interested in video games, anime, manwa, and mangga
 - 🌱 I'm dumb
+- Dumb, dumb, bumb
 - Studying BSIT first year
 
 <!---
